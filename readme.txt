@@ -1,6 +1,4 @@
 Welcome to my Git learning experience
 
 written by :- Khushal Limje
-
-
-Instagram :- Khushlimje010
+Telegram Account :- Khushal Limje
